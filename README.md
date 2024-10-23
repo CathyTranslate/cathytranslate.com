@@ -1,1 +1,1 @@
-# cathytranslate.com
+### All Rights Reserved.
